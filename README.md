@@ -38,3 +38,9 @@ i really like my friends ok they the whole reason i on this website . if you get
 
 
 ✮ ' ' live your truth and fall in love. ' '
+
+
+
+
+![border](https://github.com/user-attachments/assets/6cfa82d6-b262-4641-90ba-f8f01580cbe3)![border](https://github.com/user-attachments/assets/3ad697c7-bb5b-4827-9957-0e85706158a5)
+
