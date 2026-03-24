@@ -1,6 +1,6 @@
 hyello .
 i am teardrop/luka/boombox whatever you want to call me .
-my current interests are ut/dr , starters (movieunleashers) , pokemon , hylics , and dw .
+my current interests are ut/dr , starters (movieunleashers) , pokemon , hylics , and grace .
 my mother ate fries .
 tonya ate slices .
 drew ate donuts .
@@ -16,7 +16,7 @@ i like watching cibles and other undertale/deltarune youtubers
 
 
 
-my favorite thing to do in my free time is probably to play games, like pony town or r*blox, i also like to play the cult of the lamb and deltarune. i also like drawing yes drawing is also one of my favorite things. i like animating too but i havent done it in a while im pretty burnt out from it . im a listener but im also really loud when it comes to my interests, im pretty sensitive ontop of that. i have a typing quirk but i dont use it when im typing things like this
+my favorite thing to do in my free time is probably to play games, like pony town or r*blox, i also like to play the cult of the lamb and deltarune. i also like drawing. i like animating too . im a listener but im also really loud when it comes to my interests, im pretty sensitive ontop of that. i used to have a typing quirk, now im not cool :(
 
 
 ![Screenshot 2026-02-05 144914](https://github.com/user-attachments/assets/2cb595a8-6c5b-4069-8b84-5ae1838a9bbb)
