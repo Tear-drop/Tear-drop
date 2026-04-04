@@ -1,6 +1,6 @@
 hyello .
 i am teardrop/luka/boombox whatever you want to call me .
-my current interests are ut/dr , starters (movieunleashers) , pokemon , hylics , and grace, i dont support the owners actions .
+my current interests are ut/dr , starters (movieunleashers) , pokemon , hylics , SFAWTDE , and grace (I dont support the owners actions)
 my mother ate fries .
 tonya ate slices .
 drew ate donuts .
