@@ -1,10 +1,7 @@
 hyello .
 i am teardrop/luka/boombox whatever you want to call me .
 my current interests are ut/dr , starters (movieunleashers) , pokemon , hylics , SFAWTDE , and grace (I dont support the owners actions)
-my mother ate fries .
-tonya ate slices .
-drew ate donuts .
-and i ate it all .
+
 i like listening to any kind of music , but i enjoy breakcore , rock , grunge , and otherwise loud songs . 
 i do what i think is funny and if you dont think im funny then i will cry
 
