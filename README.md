@@ -1,3 +1,6 @@
+this readme is a work in progress until i get enough motivation to make it pretty
+
+
 hyello .
 i am teardrop/luka/boombox whatever you want to call me .
 my current interests are ut/dr , starters (movieunleashers) , pokemon , hylics , SFAWTDE , and grace (I dont support the owners actions)
