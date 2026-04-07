@@ -21,17 +21,15 @@
 
 
 ![buneary](https://github.com/user-attachments/assets/08760f0a-9c20-4401-814f-fc67f711b060)
-<p align="center"> <sup>' I didn't mean for this. . . to happen. But. '</sup>
-<p align="center"> <sup>' I can't risk my own game. '</sup>
-<p align="center"> <sup>' I'm sorry. '</sup>
-<p align="center"> <sup>' I'm SORRY '</sup>
-<p align="center"> <sup>' I'm sorry- I'm SORRY- I'M SORRY- '</sup>
-<p align="center"> <sup>' I'm so- '</sup>
-<p align="center"> <sup>' I should've been better, I'm sorry. '</sup>
-<p align="center"> <sup>' I'm sorry- I- ' '</sup>
-<p align="center"> <sup>' I should've been BETTER, I'm SORRY. '</sup>
-<p align="center"> <sup>' Damn it. '</sup>
-<p align="center"> <sup>' DAMN IT- DAMN IT. damn it... '</sup>
-<p align="center"> <sup>- postman</sup>
+<p align="center"> <sup>' BERNADETTE '</sup>
+<p align="center"> <sup>' YOU ARE MY LIBERTY '</sup>
+<p align="center"> <sup>' I CELEBRATE THE DAY '</sup>
+<p align="center"> <sup>' THAT YOU CHANGED '</sup>
+<p align="center"> <sup>' MY HISTORY OF '</sup>
+<p align="center"> <sup>' LIFE AND DEATH '</sup>
+<p align="center"> <sup>' WILL ALWAYS LEAD YOU TO LOVE AND REGRET '</sup>
+<p align="center"> <sup>' BUT YOU HAVE ANSWERS ' '</sup>
+<p align="center"> <sup>' AND I HAVE THE KEY '</sup>
+<p align="center"> <sup>' TO BERNADETTE. '</sup>
 
 ![flowers-bird](https://github.com/user-attachments/assets/64e4bcbc-fac3-4396-a9c3-623223b0f1f5)
