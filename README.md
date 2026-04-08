@@ -10,17 +10,20 @@
 
 <p align="center">  <i>I am very multi-fandom, If I am in a same fandom as you we will likely get along easily.</i>
 
-
-![the_game](https://github.com/user-attachments/assets/1759546f-6d49-4871-b87a-9568f44ef269)
-
+![the-game](https://github.com/user-attachments/assets/1759546f-6d49-4871-b87a-9568f44ef269)
 
 <p align="center"> <i>I do what I think is funny and if you don't think I'm funny, I will cry.</i>
 <p align="center"> <i>I like playing games and stuff, ask me for a username on a game and I might be up to play it</i>
 <p align="center"> <i>I also like drawing and animating</i>
+<p align="center"> <i>My favorite color is purple, I know suprising rite!!</i>
+<p align="center"> <i>My favorite flavor of things is probably Chocolate and Ube/Taro</i>
+<p align="center"> <i>My favorite Music Artists currently are Stomach Book and Mailpup, I do enjoy multiple others though!</i>
+<p align="center"> <i>Current ' special ' interest is SFAWTDE</i>
+<p align="center"> <i>Game I play most currently is CookieRun; OvenSmash</i>
 <p align="center"> <sup>wifies and technoblade are the best mcyters btw</sup>
 
-
 ![buneary](https://github.com/user-attachments/assets/08760f0a-9c20-4401-814f-fc67f711b060)
+
 <p align="center"> <sup>' BERNADETTE '</sup>
 <p align="center"> <sup>' YOU ARE MY LIBERTY '</sup>
 <p align="center"> <sup>' I CELEBRATE THE DAY '</sup>
