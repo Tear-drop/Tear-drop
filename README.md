@@ -1,4 +1,4 @@
-<img width="900" height="171" alt="R (1)" src="https://github.com/user-attachments/assets/8d7ba643-7a8b-49ff-8481-4749a0df843b" />
+<img width="500" height="168" alt="2799153_4d64e" src="https://github.com/user-attachments/assets/8f7de228-8e7d-47bf-97bc-525f61e69c7b" /><img width="500" height="168" alt="2799153_4d64e" src="https://github.com/user-attachments/assets/8f7de228-8e7d-47bf-97bc-525f61e69c7b" />
 <p>$${\color{#B2A4D4} ' Whatever You Do, At The Crossroads, Don't Turn Left. ' }$$ </p>
 
 #### <p align="center"> <sup> [atabook](https://roseymouse.atabook.org) </sup>
@@ -12,6 +12,8 @@
 
 ![the-game](https://github.com/user-attachments/assets/1759546f-6d49-4871-b87a-9568f44ef269)
 
+<img width="500" height="168" alt="2799153_4d64e" src="https://github.com/user-attachments/assets/8f7de228-8e7d-47bf-97bc-525f61e69c7b" /><img width="500" height="168" alt="2799153_4d64e" src="https://github.com/user-attachments/assets/8f7de228-8e7d-47bf-97bc-525f61e69c7b" />
+
 <p align="center"> <i>I do what I think is funny and if you don't think I'm funny, I will cry.</i>
 <p align="center"> <i>I like playing games and stuff, ask me for a username on a game and I might be up to play it</i>
 <p align="center"> <i>I also like drawing and animating</i>
@@ -24,6 +26,7 @@
 
 ![buneary](https://github.com/user-attachments/assets/08760f0a-9c20-4401-814f-fc67f711b060)
 
+<img width="500" height="168" alt="2799153_4d64e" src="https://github.com/user-attachments/assets/8f7de228-8e7d-47bf-97bc-525f61e69c7b" /><img width="500" height="168" alt="2799153_4d64e" src="https://github.com/user-attachments/assets/8f7de228-8e7d-47bf-97bc-525f61e69c7b" />
 <p align="center"> <sup>' BERNADETTE '</sup>
 <p align="center"> <sup>' YOU ARE MY LIBERTY '</sup>
 <p align="center"> <sup>' I CELEBRATE THE DAY '</sup>
