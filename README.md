@@ -8,7 +8,8 @@
 <p align="center"> <i>Apagender + Pansexual</i>
 <p align="center"> <i>I don't care what you call me, Honestly. I'm just used to male pronouns.</i>
 
-<p align="center">  <i>I am very multi-fandom, If I am in a same fandom as you we will likely get along easily.</i>
+<p align="center"> <i>I am very multi-fandom, If I am in a same fandom as you we will likely get along easily.</i>
+<p align="center"> <i>pfp credits 2 WIITCHINGH0UR on twitter</i>
 
 ![the-game](https://github.com/user-attachments/assets/1759546f-6d49-4871-b87a-9568f44ef269)
 
