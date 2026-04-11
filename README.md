@@ -23,6 +23,7 @@
 <p align="center"> <i>My favorite Music Artists currently are Stomach Book and Mailpup, I do enjoy multiple others though!</i>
 <p align="center"> <i>Current ' special ' interest is SFAWTDE</i>
 <p align="center"> <i>Game I play most currently is CookieRun; OvenSmash</i>
+<p align="center"> <i>I follow you if I think you're cool OR you're a friend (or a friends friend)</i>
 <p align="center"> <sup>wifies and technoblade are the best mcyters btw</sup>
 
 ![buneary](https://github.com/user-attachments/assets/08760f0a-9c20-4401-814f-fc67f711b060)
