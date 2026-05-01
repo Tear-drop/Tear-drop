@@ -4,7 +4,7 @@
 #### <p align="center"> <sup> [atabook](https://roseymouse.atabook.org) </sup>
 #### <p align="center"> <sup> [strawpage](https://revampedroseymouse.straw.page) </sup>
 
-<p align="center"> <i>Teardrop / Luka / Avery</i>
+<p align="center"> <i>Teardrop / Luka / Avery / John / Player</i>
 <p align="center"> <i>Apagender + Pansexual</i>
 <p align="center"> <i>I don't care what you call me, Honestly. I'm just used to male pronouns.</i>
 
