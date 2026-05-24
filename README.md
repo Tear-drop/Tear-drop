@@ -23,7 +23,7 @@
 <p align="center"> <i>My favorite color is purple, I know suprising rite!!</i>
 <p align="center"> <i>My favorite flavor of things is probably Chocolate and Ube/Taro</i>
 <p align="center"> <i>My favorite Music Artists currently are Stomach Book and Mailpup, I do enjoy multiple others though!</i>
-<p align="center"> <i>Current ' special ' interest is SFAWTDE</i>
+<p align="center"> <i>Current ' special ' interest is Rain World</i>
 <p align="center"> <i>Game I play most currently is Clean Crew (on roblox) </i>
 <p align="center"> <i>I follow you if I think you're cool OR you're a friend (or a friends friend)</i>
 <p align="center"> <sup>wifies and technoblade are the best mcyters btw</sup>
