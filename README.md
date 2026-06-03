@@ -6,7 +6,7 @@
 
 
 
-<p align="center"><img width="500" height="81" alt="2799440_fc5e6" src="https://github.com/user-attachments/assets/c382f7e1-14ff-477b-a41c-2e66e7e471a8" />
+<img width="640" height="53" alt="tumblr_62af96b14820da2f496b770a59548c03_e0078407_640" src="https://github.com/user-attachments/assets/ff21242a-ce59-4345-a7dc-c3653e4fb59a" />
 
 
 
@@ -18,7 +18,7 @@
 <img width="46" height="40" alt="Artificer_spoiler" src="https://github.com/user-attachments/assets/cd7ce891-4931-44ec-83bc-facb043c4f66" />
 
 
-<img width="500" height="81" alt="2799440_fc5e6" src="https://github.com/user-attachments/assets/c382f7e1-14ff-477b-a41c-2e66e7e471a8" />
+<img width="640" height="53" alt="tumblr_62af96b14820da2f496b770a59548c03_e0078407_640" src="https://github.com/user-attachments/assets/ff21242a-ce59-4345-a7dc-c3653e4fb59a" />
 
 
 <p align="center"> <sup>Teardrop / Petals / Five pebbles. </sup>
@@ -43,8 +43,7 @@
   
   <sup>[strawpage](https://revampedroseymouse.straw.page/)</sup>
     
-<p align="center"><img width="500" height="81" alt="2799440_fc5e6" src="https://github.com/user-attachments/assets/c382f7e1-14ff-477b-a41c-2e66e7e471a8" />
-
+<img width="640" height="53" alt="tumblr_62af96b14820da2f496b770a59548c03_e0078407_640" src="https://github.com/user-attachments/assets/ff21242a-ce59-4345-a7dc-c3653e4fb59a" />
 
 <p align="center"><img width="150" height="20" alt="f21" src="https://github.com/user-attachments/assets/087c6fe9-9d79-4dca-a424-faceb1bdd358" />
 <img width="150" height="20" alt="y41" src="https://github.com/user-attachments/assets/1bd5f9a6-4042-47d0-bc7d-8ea368db81c3" />
