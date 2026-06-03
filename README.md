@@ -1,44 +1,76 @@
-<img width="1500" height="500" alt="95dd54165ec44e8a1cd19f78b2e3e526" src="https://github.com/user-attachments/assets/a19d8e93-305a-4ced-a817-14ed7e4fee0a" />
-<p>$${\color{#B2A4D4} ' Whatever You Do, At The Crossroads, Don't Turn Left. ' }$$ </p>
+<p align="center">> Well, here we are again. It's always such a pleasure.
+<p align="center">> Remember when you tried to kill me twice?
+<p align="center">> Oh how we laughed and laughed. Except I wasn't laughing.
+<p align="center">> Under the circumstances, I've been shockingly nice.
 
-#### <p align="center"> <sup> [atabook](https://roseymouse.atabook.org) </sup>
-#### <p align="center"> <sup> [strawpage](https://revampedroseymouse.straw.page) </sup>
 
-<p align="center"> <i>Teardrop / Luka / Petals</i>
-<p align="center"> <i>Apagender + Pansexual</i>
-<p align="center"> <i>I don't care what you call me, Honestly. I'm just used to male pronouns.</i>
 
-<p align="center"> <i>I am very multi-fandom, If I am in a same fandom as you we will likely get along easily.</i>
-<p align="center"> <i>AHHHHHHHHH</i>
+<img width="500" height="81" alt="2799440_fc5e6" src="https://github.com/user-attachments/assets/c382f7e1-14ff-477b-a41c-2e66e7e471a8" /><img width="500" height="81" alt="2799440_fc5e6" src="https://github.com/user-attachments/assets/c382f7e1-14ff-477b-a41c-2e66e7e471a8" />
 
-![the-game](https://github.com/user-attachments/assets/1759546f-6d49-4871-b87a-9568f44ef269)
 
-<img width="1280" height="200" alt="tumblr_18942991d3f80a07faf32f3ce4642920_fccc6bb4_1280" src="https://github.com/user-attachments/assets/d864be6b-4c74-4b86-98de-090910f5a298" />
 
-<p align="center"> <i>I do what I think is funny and if you don't think I'm funny, I will cry.</i>
-<p align="center"> <i>I like playing games and stuff, ask me for a username on a game and I might be up to play it</i>
-<p align="center"> <i>I also like drawing and animating</i>
-<p align="center"> <i>My favorite color is purple, I know suprising rite!!</i>
-<p align="center"> <i>My favorite flavor of things is probably Chocolate and Ube/Taro</i>
-<p align="center"> <i>My favorite Music Artists currently are Stomach Book and Mailpup, I do enjoy multiple others though!</i>
-<p align="center"> <i>Current ' special ' interest is Rain World</i>
-<p align="center"> <i>Game I play most currently is Clean Crew (on roblox) </i>
-<p align="center"> <i>I follow you if I think you're cool OR you're a friend (or a friends friend)</i>
-<p align="center"> <sup>wifies and technoblade are the best mcyters btw</sup>
+<img width="1366" height="768" alt="Pebbles_dream_scene" src="https://github.com/user-attachments/assets/b4d99047-2e74-464e-a252-8c116c5c2c5f" />
 
-![buneary](https://github.com/user-attachments/assets/08760f0a-9c20-4401-814f-fc67f711b060)
 
-<img width="1280" height="200" alt="tumblr_18942991d3f80a07faf32f3ce4642920_fccc6bb4_1280" src="https://github.com/user-attachments/assets/d864be6b-4c74-4b86-98de-090910f5a298" />
 
-<p align="center"> <sup>' BERNADETTE '</sup>
-<p align="center"> <sup>' YOU ARE MY LIBERTY '</sup>
-<p align="center"> <sup>' I CELEBRATE THE DAY '</sup>
-<p align="center"> <sup>' THAT YOU CHANGED '</sup>
-<p align="center"> <sup>' MY HISTORY OF '</sup>
-<p align="center"> <sup>' LIFE AND DEATH '</sup>
-<p align="center"> <sup>' WILL ALWAYS LEAD YOU TO LOVE AND REGRET '</sup>
-<p align="center"> <sup>' BUT YOU HAVE ANSWERS ' '</sup>
-<p align="center"> <sup>' AND I HAVE THE KEY '</sup>
-<p align="center"> <sup>' TO BERNADETTE. '</sup>
+<p align="center"><img width="50" height="41" alt="Slugcat_no_right" src="https://github.com/user-attachments/assets/57656e38-583c-41d2-9212-83cff038a9e4" /><sup>' And I know that someday soon you'll look back on all this and you'll laugh, forgive dont forget, while you forgive dont forget, okay? '</sup>
+<img width="46" height="40" alt="Artificer_spoiler" src="https://github.com/user-attachments/assets/cd7ce891-4931-44ec-83bc-facb043c4f66" />
 
-![flowers-bird](https://github.com/user-attachments/assets/64e4bcbc-fac3-4396-a9c3-623223b0f1f5)
+
+<img width="500" height="81" alt="2799440_fc5e6" src="https://github.com/user-attachments/assets/c382f7e1-14ff-477b-a41c-2e66e7e471a8" />
+<img width="500" height="81" alt="2799440_fc5e6" src="https://github.com/user-attachments/assets/c382f7e1-14ff-477b-a41c-2e66e7e471a8" />
+
+<p align="center"> <sup>Teardrop / Petals / Five pebbles. </sup>
+<p align="center"> <sup>Any pronouns. ( Besides it/its. Masc pref ) </sup>
+<p align="center"> <sup>I do what I think is funny. If you don't think I'm funny, I will cry. </sup>
+<p align="center"> <sup>I made this for pony town mostly.</sup>
+
+<p align="center"><b> ' Always enranged, she spent her life, giving scavs PTSD! ' </b><img width="46" height="40" alt="Artificer_spoiler" src="https://github.com/user-attachments/assets/f55774b4-e0e0-4f7e-a8e8-b83623e95a4a" /><img width="46" height="40" alt="Rivulet_spoiler" src="https://github.com/user-attachments/assets/dc90a35c-381a-41ff-afc7-b4732254cb84" />
+
+
+
+</details>
+<div align="center">
+<details>
+ <summary>dni list</summary>
+  Basic dni criteria. . .  But a few extra ones. Darkshippers, Fans of changed / transfur media, RCTA people, people who ragebait with homophobic, racist, or ableist comments, vivziepop fans/supporters ( or just hazbin hotel fans in general ya'll are weird ), people under 10, people with the "SILLEH CARS XD" humor ya'll r just annoying sorry.
+      <p align="center">
+    </details>
+  <p align="center"><sup>I have lots of interests, if we both share a fandom we will likely get along well.</sup>
+
+  <sup>[atabook](https://roseymouse.atabook.org/)</sup>
+  
+  <sup>[strawpage](https://revampedroseymouse.straw.page/)</sup>
+    
+<img width="500" height="81" alt="2799440_fc5e6" src="https://github.com/user-attachments/assets/c382f7e1-14ff-477b-a41c-2e66e7e471a8" /><img width="500" height="81" alt="2799440_fc5e6" src="https://github.com/user-attachments/assets/c382f7e1-14ff-477b-a41c-2e66e7e471a8" />
+
+<img width="150" height="20" alt="f21" src="https://github.com/user-attachments/assets/087c6fe9-9d79-4dca-a424-faceb1bdd358" />
+<img width="150" height="20" alt="y41" src="https://github.com/user-attachments/assets/1bd5f9a6-4042-47d0-bc7d-8ea368db81c3" />
+<img width="150" height="20" alt="f9" src="https://github.com/user-attachments/assets/b115405a-7cb7-488d-ba66-c6277320c9f7" />
+<img width="150" height="20" alt="d74" src="https://github.com/user-attachments/assets/a8d05fd6-573d-4616-a317-410202a0dbea" />
+<img width="150" height="20" alt="g61" src="https://github.com/user-attachments/assets/0bf96a09-b0c1-48a7-9f99-e337e030cedc" />
+<img width="150" height="20" alt="l10" src="https://github.com/user-attachments/assets/9048f1df-1cf6-47aa-8592-53a7c6c3f1eb" />
+<img width="99" height="56" alt="a69" src="https://github.com/user-attachments/assets/d0c07595-1c39-4bda-8342-a28e6349c418" />
+<img width="99" height="56" alt="k19" src="https://github.com/user-attachments/assets/da91c964-07b0-43a5-9645-a54ac8f7ff1a" />
+<img width="101" height="57" alt="b70" src="https://github.com/user-attachments/assets/37d99885-95a1-40b3-a8a7-3b75eec6cc08" />
+<img width="99" height="56" alt="e77" src="https://github.com/user-attachments/assets/356f036b-9ef0-45e1-b3a8-c93bd8da3f81" />
+<img width="99" height="56" alt="k23" src="https://github.com/user-attachments/assets/ac0b1e03-98af-43da-82cc-e837945daf6c" />
+<img width="99" height="56" alt="g10" src="https://github.com/user-attachments/assets/f4e79139-6193-4116-b089-8e762f027b20" />
+<img width="99" height="56" alt="h24" src="https://github.com/user-attachments/assets/f6dcdd45-fc90-4602-a5e6-ab0124ddf854" />
+<img width="99" height="56" alt="i33" src="https://github.com/user-attachments/assets/cb7a8007-aa6b-4704-a707-d010ae5f68a6" />
+<img width="99" height="56" alt="a57" src="https://github.com/user-attachments/assets/a67e3bf9-fd27-48bc-a683-a4015b0750d9" />
+
+
+<sup>> Goodbye my only friend. . . Oh, did you think I meant you?</sup>
+
+<sup>> That would be funny if it weren't so sad.</sup>
+
+<sup>> Well, you have been replaced.</sup>
+
+<sup>> I don't need ANYONE now.</sup>
+
+<sup>> When I delete you, maybe I'LL STOP FEELING SO BAD.</sup>
+
+<sup>> Go make some new disaster. . . That's what I'm counting on.</sup>
+
+<sup>> You're someone elses problem - now I only want you gone.</sup>
