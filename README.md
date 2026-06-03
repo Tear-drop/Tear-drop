@@ -43,9 +43,10 @@
   
   <sup>[strawpage](https://revampedroseymouse.straw.page/)</sup>
     
-<img width="500" height="81" alt="2799440_fc5e6" src="https://github.com/user-attachments/assets/c382f7e1-14ff-477b-a41c-2e66e7e471a8" />
+<p align="center"><img width="500" height="81" alt="2799440_fc5e6" src="https://github.com/user-attachments/assets/c382f7e1-14ff-477b-a41c-2e66e7e471a8" />
 
-<img width="150" height="20" alt="f21" src="https://github.com/user-attachments/assets/087c6fe9-9d79-4dca-a424-faceb1bdd358" />
+
+<p align="center"><img width="150" height="20" alt="f21" src="https://github.com/user-attachments/assets/087c6fe9-9d79-4dca-a424-faceb1bdd358" />
 <img width="150" height="20" alt="y41" src="https://github.com/user-attachments/assets/1bd5f9a6-4042-47d0-bc7d-8ea368db81c3" />
 <img width="150" height="20" alt="f9" src="https://github.com/user-attachments/assets/b115405a-7cb7-488d-ba66-c6277320c9f7" />
 <img width="150" height="20" alt="d74" src="https://github.com/user-attachments/assets/a8d05fd6-573d-4616-a317-410202a0dbea" />
