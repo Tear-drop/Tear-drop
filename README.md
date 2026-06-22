@@ -39,9 +39,9 @@
     </details>
   <p align="center"><sup>I have lots of interests, if we both share a fandom we will likely get along well.</sup>
 
-  <sup>[atabook](https://fivepebs.atabook.org/)</sup>
+  <sup>[atabook](https://roseymouse.atabook.org/)</sup>
   
-  <sup>[strawpage](https://revampedroseymouse.straw.page/)</sup>
+  <sup>[strawpage](https://fivepebs.straw.page/)</sup>
     
 <img width="640" height="53" alt="tumblr_62af96b14820da2f496b770a59548c03_e0078407_640" src="https://github.com/user-attachments/assets/ff21242a-ce59-4345-a7dc-c3653e4fb59a" />
 
